@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gabrielbranch
-- ₿ Buy bitcoin before the dollar collapse destroys your wealth...
+
 
 
 <!---
